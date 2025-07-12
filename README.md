@@ -6,5 +6,5 @@
 <br />
 
 #### ʏᴏᴜ ᴄᴀɴ ꜰɪɴᴅ ᴍᴇ ᴀʟꜱᴏ ᴏɴ
-[`Website`](https://caseyee.com)
+[`Website`](https://caseyyee.com)
 [`LinkedIn`](https://www.linkedin.com/in/whoyee/)
